@@ -1,4 +1,4 @@
-# Manjiro Sano md*
+# Virus-254-king🔮*
 
 <p align="center">
   <a href="https://github.com/Cod3Uchiha">
